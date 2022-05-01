@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on LOL
 - 🤔 I’m looking for help with getting out of the pool.
 - 💬 Ask me about ... nothing
-- 📫 There is actually no need for you guys to reach me :) 
+- 📫 There is actually no need for you guys to reach me : ) 
 
 
